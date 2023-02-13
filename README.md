@@ -1,2 +1,1 @@
-# rsschool-cv
- 
+https://massikz.github.io/massikz/
